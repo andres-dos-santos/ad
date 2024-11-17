@@ -1,0 +1,1 @@
+é um serviço onde as pessoas podem fazer um post em várias plataformas
